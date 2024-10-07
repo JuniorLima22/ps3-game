@@ -11,3 +11,8 @@ Espacy - GTA Vice City PT-BR
 
 [Parte 1](https://www.mediafire.com/file/14qlbaf00p4z7jg/Espacy+-+GTA+Vice+City.pkg.66600/file)
 [Parte 2](https://www.mediafire.com/file/kgyr6bdfgxb0nd3/Espacy+-+GTA+Vice+City.pkg.66601/file)
+
+PKGi
+
+[PKGi](https://www.mediafire.com/file/6mcl7ywlbgoi1eq/pkgi-ps3.pkg/file)
+[PKGi List](https://www.mediafire.com/file/kajgrarblqp29c9/PKGi_LIST.pkg/file)
